@@ -73,5 +73,6 @@ We reserve the right, at our sole discretion, to modify or replace these Terms a
 If you have any questions about these Terms, please contact us at:
 
 **Email:** info@webomax.net
+
 **Company:** Webomax Bilişim Teknolojiler Limited Şirketi
 
